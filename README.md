@@ -1,0 +1,2 @@
+# AplikasiPenghitungKata
+Siti Aulia Salsabila-2310010291-AplikasiPenghitungKata
